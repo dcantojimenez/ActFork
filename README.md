@@ -1,1 +1,1 @@
-Escribe aquí tu nombre y apellidos
+José Miguel Seara Martínez
